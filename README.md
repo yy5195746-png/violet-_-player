@@ -1,1 +1,1 @@
-# violet-_-player
+# violet-_-player this app may be buggy so yeah be carefull I guess
